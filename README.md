@@ -1,1 +1,1 @@
-# [I'M LINKE \;](https://hunt3r0x.github.io)
+# [I'M LINK \\;](https://hunt3r0x.github.io)
